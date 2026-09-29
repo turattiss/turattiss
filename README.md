@@ -1,4 +1,4 @@
-# Isabela Turatti 👩‍💻
+# Isabela Turatti
 
 **`Estudante de Sistemas de Informação`**
 
